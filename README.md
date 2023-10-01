@@ -4,3 +4,4 @@
 Anime characters :-
 
 1 Luffy
+2 zoro 
